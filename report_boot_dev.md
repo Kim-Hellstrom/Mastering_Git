@@ -7,7 +7,7 @@
 
 ## Total Study Time
 
-**Estimated:** 6–8 hours
+**Estimated:** 20 hours
 
 ---
 
